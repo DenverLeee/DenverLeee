@@ -5,8 +5,8 @@
 </a>
 
 * 🔥 Currently a student in XMUM:
-  - Roaming GitHub for Some Awesome
-  - I am Looking for **Internship**
+  - Roaming Roaming GitHub
+  - I am Looking for an **Internship**
   - I am Dying for Any New **Skills**
   - **Learning! Learning！ Learning！**
 * 🦀 Collaborate with any **fucking crazy guy**
