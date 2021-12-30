@@ -6,7 +6,7 @@
 
 * 🔥 I’m currently:
   - Roaming GitHub
-  - Looking for Internship
+  - Looking for **Internship**
   - I am Dying for New Skills
 * 🦀 Collaborate with any **fucking crazy guy**
 * 📫 PM me: qwljy1139643975@gmail.com
