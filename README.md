@@ -6,7 +6,7 @@
 __Me Myself and I be like:__
 
 * 🔥 I’m currently:
-  - Roaming GitHub
+-Roaming GitHub
   2. Looking for Internship
   3. I am Dying for New Skills
 * 💥 I’m currently learning Java Full-stack
