@@ -10,7 +10,7 @@ __Me Myself and I be like:__
   - Looking for Internship
   - I am Dying for New Skills
 * 💥 I’m currently learning Java Full-stack
-* 🦀 I’m looking to collaborate with any <u>fucking crazy guy</u>
+* 🦀 I’m looking to collaborate with any **fucking crazy guy**
 * 📫 How to contact me: qwljy1139643975@gmail.com
 * 🤬 Favourite song: [The Other Side of Paradise-Glass Animals](https://open.spotify.com/track/0rRjGruFonCGOt0S5zAJNQ "Spotify") 
 
