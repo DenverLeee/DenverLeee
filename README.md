@@ -6,8 +6,8 @@
 
 * 🔥 Currently a student in XMUM:
   - Roaming Roaming GitHub
-  - I am Looking for an **Internship**
   - I am Dying for Any New **Skills**
+  - I am Looking for an **Internship**
   - **Learning! Learning！ Learning！**
 * 🦀 Collaborate with any **fucking crazy guy**
 * 📫 Contact me: qwljy1139643975@gmail.com
