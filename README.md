@@ -6,9 +6,9 @@
 **Me Myself and I be like: ** 
 
 * 🔥 I’m currently:
-  ++ Roaming GitHub
-  ++ Looking for Internship
-  ++ I am Dying for New Skills
+++ Roaming GitHub
+++ Looking for Internship
+++ I am Dying for New Skills
 * 💥 I’m currently learning Java Full-stack
 * 🦀 I’m looking to collaborate with any fucking crazy guy
 * 📫 How to contact me: qwljy1139643975@gmail.com
