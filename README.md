@@ -5,12 +5,12 @@
 </a>
 
 * 🔥 Currently a student in XMUM:
-  - Roaming and Learn from GitHub 
+  - Roaming GitHub for Some Awesome
   - I am Looking for **Internship**
   - I am Dying for Any New **Skills**
   - **Learning! Learning！ Learning！**
 * 🦀 Collaborate with any **fucking crazy guy**
-* 📫 PM me: qwljy1139643975@gmail.com
+* 📫 Contact me: qwljy1139643975@gmail.com
 * 🤬 Favourite song: [The Other Side of Paradise](https://open.spotify.com/track/0rRjGruFonCGOt0S5zAJNQ "Spotify") 
 
 
