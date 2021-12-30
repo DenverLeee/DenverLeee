@@ -4,7 +4,7 @@
   <img align="right" src="https://github-readme-stats.vercel.app/api?username=DenverLeee&show_icons=true&theme=nord&count_private=true" />
 </a>
 
-* 🔥 I’m currently: 
+* 🔥 Currently a student in XMUM:
   - Roaming GitHub
   - Looking for **Internship**
   - Be Dying for New **Skills**
