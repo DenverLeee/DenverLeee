@@ -10,7 +10,7 @@
   - I am Looking for an **Internship**
   - **Learning! Learning！ Learning！**
 * 🦀 Collaborate With any **“Moving-forward”**
-* 📫 Contact Me: qwljy1139643975@gmail.com
+* 📫 Contact Me: denverleejy@gmail.com
 * 🤬 Favourite Song: [The Other Side of Paradise](https://open.spotify.com/track/0rRjGruFonCGOt0S5zAJNQ "Spotify") 
 
 
