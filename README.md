@@ -1,4 +1,4 @@
-### Hi There! You! This is Fucking Crazy DenverLee Speaking!💃💃💃💃💃💃
+### Hi There! You! This is Fxxking Crazy DenverLee Speaking!💃💃💃💃💃💃
 ----------------------------------------------
 <a href="https://github.com/anuraghazra/github-readme-stats">
   <img align="right" src="https://github-readme-stats.vercel.app/api?username=DenverLeee&show_icons=true&theme=nord&count_private=true" />
