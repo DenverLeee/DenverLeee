@@ -7,7 +7,6 @@
 * 🔥 Currently a Student in XMUM:
   - I am Roaming GitHub
   - I am Dying for Any New **Skills**
-  - **Learning！ Learning！ Learning！**
 * 🍻 Collaborate With any **“Moving-forward”**
 * 📫 Contact Me: denverleejy@gmail.com
 * 👼 Favourite Song: [The Other Side of Paradise](https://open.spotify.com/track/0rRjGruFonCGOt0S5zAJNQ "Spotify") 
